@@ -1,20 +1,22 @@
 ![SatanLovesP](SatanLovesP.png "SatanLovesP")
 
-# A very effective Catholic firewall filter to block pornography
+# A very effective Catholic holy armour (firewall filter) to block pornography
 
 *Lust is one of the seven cardinal vices.*
 
 *«If your right eye causes you to stumble, gouge it out and throw it away. It is better for you to lose one part of your body than for your whole body to be thrown into hell. And if your right hand causes you to stumble, cut it off and throw it away. It is better for you to lose one part of your body than for your whole body to go into hell.» (Matthew 5:29-30)*
 
-*«Put on the full armor of God, so that you can take your stand against the devil’s schemes.» (Ephesians 6:11)*
-
-*«Submit yourselves, then, to God. Resist the devil, and he will flee from you.» (James 4:7)*
+*«And Jesus entered the temple of God and drove out all who sold and bought in the temple, and he overturned the tables of the money-changers and the seats of those who sold pigeons.» (Matthew 21:12)*
 
 *«Anyone who looks at a woman to lust after her has already committed adultery with her in his heart.» (Matthew 5:28)*
 
 *«You shall not covet your neighbor’s wife.» (Deuteronomy 5:21)*
 
+*«Submit yourselves, then, to God. Resist the devil, and he will flee from you.» (James 4:7)*
+
 *«But each one is tempted when by his own evil desires he is lured away and enticed.» (James 1:14)*
+
+*«Put on the full armor of God, so that you can take your stand against the devil’s schemes.» (Ephesians 6:11)*
 
 ### About:
 - This is the most effective method of blocking pornography that I have ever achieved (word origin: porneia πορνεία, meaning "prostitution", _britannica_ definition).
