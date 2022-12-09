@@ -6,7 +6,7 @@
 
 *«If your right eye causes you to stumble, gouge it out and throw it away. It is better for you to lose one part of your body than for your whole body to be thrown into hell. And if your right hand causes you to stumble, cut it off and throw it away. It is better for you to lose one part of your body than for your whole body to go into hell.» (Matthew 5:29-30)*
 
-*«And Jesus entered the temple of God and drove out all who sold and bought in the temple, and he overturned the tables of the money-changers and the seats of those who sold pigeons.» (Matthew 21:12)*
+*«And Jesus entered the temple of God and drove out all who sold and bought in the temple, and he overturned the tables of the money-changers and the seats of those who sold pigeons. He said to them, “It is written, ‘My house shall be called a house of prayer’; but you make it a den of robbers.”» (Matthew 21:12-13) Our bodies need to be cleansed of sin, as they are temples of the Holy Spirit.*
 
 *«Anyone who looks at a woman to lust after her has already committed adultery with her in his heart.» (Matthew 5:28)*
 
